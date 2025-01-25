@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Hendryxssss
+- 👋 Hi, I’m @Hendryxsss
 - 👀 I’m interested in Tracking Social Media location
 - 🌱 I’m currently learning Tracking Social Media location
 - 💞️ I’m looking to collaborate on Anyone who can trace the location of social media
-- 📫 How to reach me : wa +6281289805050, email : hendryxsssss@gmail.com
+- 📫 How to reach me : wa +6281289805050, email : hendryxssss@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
